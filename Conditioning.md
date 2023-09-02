@@ -1,5 +1,6 @@
 Through repetition of certain patterns, the mind gets comfortably attached to certain things when they repeatedly occur in the environment
 
+
 Also certain intense traumatic experiences imbue [[the mind]] with immense [[conditioning]] & [[pain]]
 
 These attachments can either be in the form of wanting something or avoiding something
