@@ -1,2 +1,2 @@
 # MindOS
-How the mind works &amp; how to overcome mental suffering
+how the mind works &amp; how to overcome mental suffering
