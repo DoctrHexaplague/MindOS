@@ -1,0 +1,1 @@
+Pain is feeling the difficult or uncomfortable emotions

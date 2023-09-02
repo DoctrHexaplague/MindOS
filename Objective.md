@@ -1,0 +1,1 @@
+From the viewpoint of the logical mind

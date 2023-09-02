@@ -1,0 +1,1 @@
+Immense positive emotions can lead to [[mania]]

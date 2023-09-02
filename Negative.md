@@ -1,0 +1,1 @@
+Immense negative emotions could lead to [[depression]]
